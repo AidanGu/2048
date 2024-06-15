@@ -1,1 +1,3 @@
-finished w finals.... finally, working on a bunch of projects now :)
+working on a bunch of projects now :)
+
+while traveling...
